@@ -2,7 +2,7 @@
 
 On **31st December 2024 at 20:52**, I got banned for 1 year on **Mineberry OP Survival**.  
 
-Since then, I’ve been waiting to get unbanned… so I made this countdown to mark the return.  
+Since then, I’ve been waiting to get unbanned… so I made [this countdown](https://kroefer1.github.io/countdown/) to mark the return.  
 
 Crazy story.
 
